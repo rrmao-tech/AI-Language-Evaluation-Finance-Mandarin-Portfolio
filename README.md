@@ -110,6 +110,7 @@ The revised translation better reflects the intended meaning and is more appropr
 ### Speaking Demonstration
 
 [Insert Mandarin Chinese & English Speaking Demonstration video link here]
+https://youtu.be/ors21ZzFBeA
 
 ## 5. Transcription Quality Review Example
 
