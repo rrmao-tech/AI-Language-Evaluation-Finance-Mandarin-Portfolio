@@ -205,6 +205,24 @@ My bilingual communication experience and international business background supp
 
 ## 9. Finance Mandarin & Business Chinese Expertise
 
+---
+
+### Finance Mandarin – Financial Terminology
+
+**Professional Bilingual Financial Glossary | English–Simplified Chinese**
+
+A practical reference demonstrating financial terminology accuracy, bilingual financial communication and professional accounting knowledge.
+
+**Topics covered:**
+- Financial statements and accounting terminology
+- Revenue, profitability and cost management
+- Budgeting, forecasting and variance analysis
+- Financial reporting expressions
+- Practical English–Mandarin finance communication
+- AI financial language evaluation standards
+
+📄 [View Finance Mandarin – Financial Terminology (PDF)](Finance%20Mandarin%20%E2%80%93%20Financial%20Terminology.pdf)
+
 **Specialist Domain: Financial Communication, Accounting and Business Language**
 
 My international finance career provides a strong practical foundation for explaining, interpreting and evaluating financial and business concepts in both Mandarin Chinese and English.
